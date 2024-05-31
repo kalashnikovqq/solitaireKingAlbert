@@ -1,0 +1,6 @@
+![Screenshot_1](https://github.com/kalashnikovqq/solitaireKingAlbert/assets/100009366/ae39a087-1957-496d-a3a6-d4b39d6a7f52)
+![Screenshot_2](https://github.com/kalashnikovqq/solitaireKingAlbert/assets/100009366/df03da6b-1836-49f2-ba14-0fa44b3202be)
+![Screenshot_3](https://github.com/kalashnikovqq/solitaireKingAlbert/assets/100009366/a75de83e-8fa8-4d19-8dee-0939fc0386fe)
+![Screenshot_4](https://github.com/kalashnikovqq/solitaireKingAlbert/assets/100009366/6d16088e-d030-4c5a-b1cc-2e0b99fd13f0)
+![Screenshot_5](https://github.com/kalashnikovqq/solitaireKingAlbert/assets/100009366/02d96cbc-83df-43d7-b5a9-4f22f125de79)
+![Screenshot_6](https://github.com/kalashnikovqq/solitaireKingAlbert/assets/100009366/883b9bd4-f1cf-4559-bf13-890c5b1c4166)
